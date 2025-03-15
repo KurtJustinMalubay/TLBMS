@@ -1,1 +1,1 @@
-DOWNLOAD THE ZIP FILE
+Download the latest version!
